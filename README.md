@@ -1,4 +1,3 @@
-**如有错误，请私信联系**
 
 [github](https://github.com/cly312/zhengzhi)
 
