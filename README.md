@@ -1,4 +1,4 @@
-**如有错误，请发送邮件到chenluyao312@hotmail.com**
+**如有错误，请通过Issues反馈**
 
 [github](https://github.com/cly312/zhengzhi)
 
