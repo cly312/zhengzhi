@@ -106,6 +106,8 @@
 
 [第三课](https://jsd.cdn.zzko.cn/gh/cly312/zhengzhi@main/mp3/8A-K3.mp3)
 
+[第三课2](https://jsd.cdn.zzko.cn/gh/cly312/zhengzhi@main/mp3/8A-K3-p.mp3)
+
 1.常见的社会秩序有：
 
 ①社会管理秩序（安全检查等）
@@ -181,6 +183,8 @@
 （3）积极改进规则。
 
 [第四课](https://jsd.cdn.zzko.cn/gh/cly312/zhengzhi@main/mp3/8A-K4.mp3)
+
+[第四课2](https://jsd.cdn.zzko.cn/gh/cly312/zhengzhi@main/mp3/8A-K4-p.mp3)
 
 1.为什么要尊重他人？
 
