@@ -280,7 +280,19 @@
 
 12.应对违法犯罪，青少年如何做到有勇有谋？
 
+
 在面对违法犯罪时，我们要敢于并善于斗争，在保全自己、减少伤害的前提下，巧妙地借助他人或社会的力量，采取机智灵活的方式，同违法犯罪作斗争。
+
+![无标题](https://github.com/user-attachments/assets/c87589ae-d3dc-4476-910c-dd1b0e219407)
+![无标题](https://github.com/user-attachments/assets/1afc733f-342f-4e04-ae7e-0a28afc4b118)
+![无标题](https://github.com/user-attachments/assets/0edeb965-d74e-43aa-adf4-db973d44c195)
+![无标题](https://github.com/user-attachments/assets/44e0da62-5e20-474e-b608-56023eeddb4a)
+![无标题](https://github.com/user-attachments/assets/973b9dde-22dc-4ba4-92b5-a531e2391208)
+
+
+
+
+
 
 13、青少年对法律应有怎样的正确态度？
 
